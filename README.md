@@ -1,4 +1,0 @@
-laughing-octo-batman
-====================
-
-paramali
